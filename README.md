@@ -6,7 +6,9 @@
 ────── ୨ৎ ──────
 </div>
 
-<img width="1148" height="938" alt="hearthcattyh" src="https://github.com/user-attachments/assets/6df2b2e9-7146-4ab2-ba74-30075dd05fa6" />
+<div align="center">
+<img width="848" height="638" alt="hearthcattyh" src="https://github.com/user-attachments/assets/6df2b2e9-7146-4ab2-ba74-30075dd05fa6" />
+</div>
 <div align="center">
 <sup>i must be the reason why you must tell me all these lies —— wishing you a better life without me by <i>your</i> side.
 </div>
