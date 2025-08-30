@@ -31,5 +31,5 @@
 </div>
 
 <h4 align="center"
-<br><a href="https://github.com/azuretiime">main github</a> ⠀     <a href="https://rentry.co/-betrayedspawn">rentry</a>
+<br><a href="https://github.com/azuretiime">main github</a> ⠀     <a href="https://cathysgf.straw.page/">strawpage</a>
 </h4>
