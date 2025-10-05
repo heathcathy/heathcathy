@@ -19,7 +19,7 @@
 
 　
 <div align="center">
-❀ <b>silver ⋆ two time! </b>
+❀ <b>silver ⋆ angela! </b>
 </div>
 
 　
