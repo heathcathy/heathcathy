@@ -19,7 +19,7 @@
 
 　
 <div align="center">
-❀ <b>silver ⋆ angela! </b>
+❀ <b>cathy ▪ they / she </b>
 </div>
 
 　
@@ -27,9 +27,9 @@
 <sup>⟡ <b>no specific dni. however — please do not interact with me if you ship <i>ryoshu x lei heng</i> or <i>sebastian solace x painter</i>, + if you're a proshipper</b>
 </div>
 <div align="center">
-<sup> <b>cathy's theywife ♡</b>
+<sup>taken by my gorgeous wife ♡ !!! don't flirt with me or be odd at all. i have an adorable caring girlfriend that i am loyal to.</b>
 </div>
 
-<h4 align="center"
+<div align="center">
 <br><a href="https://github.com/azuretiime">alternative github</a> ⠀     <a href="https://cathysgf.straw.page/">strawpage</a>
 </h4>
